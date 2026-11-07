@@ -1,2 +1,0 @@
-# varunsingh.github.io
-Portfolio
